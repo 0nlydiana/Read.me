@@ -1,2 +1,2 @@
 # Read.me
-hello, my name is Diana Moreno and I attend early college academy at lattc as a senior.
+Hello, my name is Diana Moreno and currently attend Early College Academy at Los Angeles Trade Technical and I am a current senior.
